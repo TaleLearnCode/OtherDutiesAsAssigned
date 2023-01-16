@@ -1,13 +1,13 @@
 ![Other Duties as Assigned](Thumbnail.jpg)
 
 ## Abstract
-“Other duties as assigned.”  This is in just about everyone’s job description and generally means the tasks that the hiring manager or human resources could not think of when they were writing the job description.  A lot of times, employees do not even get assigned with such tasks or they hardly notice when they are performing such tasks.  But what if we sought out such things, embraced them, became better at our jobs, and, in turn, benefited out careers by not only taking on these other duties but seeking them out.  
+"Other duties as assigned" is a phrase included in just about everyone's job description and generally means the tasks that the hiring manager or human resources could not think of when writing the job description.  As a result, employees often do not even get assigned such tasks or hardly notice when performing them.  But what if we sought out such things, embraced them, became better at our jobs, and, in turn, benefited our careers by not only taking on these other duties but seeking them out?  
 
-In over three decades of professional software development experience, Chad Green has performed a lot of duties that did not fall within job description.  As a matter of fact, his professional software development experience started because of “other duties as assigned.”  Learn how Chad embraced these assignments and improved his core skills by them and how they have made him the leader he is today.
+Chad Green's professional software development career was kickstarted by "other duties as assigned." Over three decades later, Chad has performed many duties that fell outside of his job descriptions.  Learn how he embraced these assignments and improved his core skills through them and how they have made him the leader he is today.
 
 
 ## Short Abstract
-“Other duties as assigned.”  This is in just about everyone’s job description and generally means the tasks that the hiring manager or human resources could not think of when they were writing the job description.  A lot of times, employees do not even get assigned with such tasks or they hardly notice when they are performing such tasks.  But what if we sought out such things, embraced them, became better at our jobs, and, in turn, benefited out careers by not only taking on these other duties but seeking them out.
+"Other duties as assigned" is a phrase included in just about everyone's job description and generally means the tasks that the hiring manager or human resources could not think of when writing the job description.  As a result, employees often do not even get assigned such tasks or hardly notice when performing them.  But what if we sought out such things, embraced them, became better at our jobs, and, in turn, benefited our careers by not only taking on these other duties but seeking them out?
 
 ## Summary
 Everyone’s job description includes “other duties as assigned.” Learn to embrace such tasks and how they can make you a better professional.
